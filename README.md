@@ -57,11 +57,13 @@ I'm not from a technology background, but I'm curious about **what technology ca
 
 <br>
 
-### 🌊
+### EDUCATION
 
-## 15+
+## Bachelor of Commerce
 
-**YEARS ABROAD**
+**Marketing & International Business**
+
+**University of New South Wales**
 
 <br>
 
